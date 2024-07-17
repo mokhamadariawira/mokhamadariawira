@@ -7,7 +7,7 @@
 💞️ I’m looking to collaborate on innovative projects that involve data analysis, machine learning model development, and AI-based solutions. Whether it's a research project, an open-source initiative, or a startup idea, I'm excited to contribute and collaborate.
 
 📫 How to reach me:
-- Email: mokhamadariawira@example.com
+- Email: mokhamadariawirakusumah689@gmail.com
 - LinkedIn: [Mokhamad Ariawira](https://www.linkedin.com/in/mokhamadariawira)
 - Twitter: [@mokhamadariawira](https://twitter.com/mokhamadariawira)
 
